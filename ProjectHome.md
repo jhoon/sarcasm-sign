@@ -1,0 +1,1 @@
+A useful sarcasm sign for those awkward situations.
